@@ -1,1 +1,1 @@
-# rsschool-cv
+https://github.com/breakingfox/rsschool-cv/cv
