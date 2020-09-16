@@ -5,7 +5,13 @@
 
 ### Junior Front-end Developer
 
-##### My latest code example at GitHub.com : [@breakingfox](https://github.com/Chukana/HTCTest)
+##### My latest code example at GitHub.com : [@breakingfox](https://github.com/breakingfox/AlcoParty)
+
+---
+
+##### Contact information
+breakingfox@gmail.com
++7 927 605 96 05
 
 ---
 
