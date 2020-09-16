@@ -1,5 +1,5 @@
 
-![Photo](https://www.google.ru/url?sa=i&url=https%3A%2F%2Fwww.gazeta.ru%2Ftech%2Fnews%2F2018%2F10%2F30%2Fn_12228661.shtml&psig=AOvVaw3GUQ0aA75XH9rS9aPvgCXb&ust=1600369697220000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIja5fOu7usCFQAAAAAdAAAAABAD)
+![Photo](https://sites.google.com/site/dekchysite95/_/rsrc/1480944463347/extra-credit/google.png)
 
 ## ALEX NOVITSKIY
 
